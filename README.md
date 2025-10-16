@@ -2,7 +2,7 @@
 
 🚀 Full-Stack Developer | 💻 Open Source Contributor | 🎯 Tech Enthusiast  
 
-🌍 [Portfolio](#) | 🔗 [LinkedIn](www.linkedin.com/in/pratiksha-joshi-464954215) | 📩 [Email](mailto:pratujoshi@gmail.com)  
+🌍 [Portfolio](#) | 🔗 [LinkedIn]([www.linkedin.com/in/pratiksha-joshi-464954215](https://www.linkedin.com/in/pratiksha-joshi-464954215/)) | 📩 [Email](mailto:pratujoshi@gmail.com)  
 
 ---
 
